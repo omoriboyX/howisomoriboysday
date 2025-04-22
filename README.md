@@ -9,3 +9,4 @@ Insecurities
 Bullying
 
 *even if these topics are not yet mentioned, still keep in mind they most likely will some other time
+I am in no way affiliated with omocat. I just use omoriboy as a nickname because I feel comfortable identifying with the character.
